@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Silver
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Scripting
+- 💞️ I’m looking to collaborate on Roblox Projects
+- 📫 How to reach me: Discord: silverknigh_t
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love flowers
